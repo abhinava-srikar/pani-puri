@@ -1,0 +1,1 @@
+2 to 3 medium potatoes. 1 small to medium onion - optional. 1 to 1.5 tablespoon chopped coriander leaves. (cilantro leaves) 1 teaspoon roasted cumin powder. 1 teaspoon chaat masala powder. ¼ teaspoon red chili powder, optional. black salt or regular salt as required.
